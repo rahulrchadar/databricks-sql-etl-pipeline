@@ -48,6 +48,5 @@ Bronze → Silver → Gold
 
 👨‍💻 Created by Rahul Chadar
 
-👨‍💻 Created by Rahul
 
 
